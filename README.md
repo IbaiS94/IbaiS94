@@ -5,7 +5,7 @@
 
 .　　 。　　　• . 　　 • 　　　　•
 
-　　ﾟ　　 Red was not An Impostor.　 ඞ。　.
+　　ﾟ　　 Black was not An Impostor.　 ඞ。　.
 
 　　'　　　 1 Impostor remains 　 　　。
 
