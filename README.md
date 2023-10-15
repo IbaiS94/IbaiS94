@@ -1,15 +1,3 @@
-### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-. 　　　。　　　　•　 　ﾟ　　。 　　.
-
-　　　.　　　 　　.　　　　　。　　 。　. 　
-
-.　　 。　　　• . 　　 • 　　　　•
-
-　　ﾟ　　 Black was not An Impostor.　 ඞ。　.
-
-　　'　　　 1 Impostor remains 　 　　。
-
-　　ﾟ　　　.　　　. 　　　　.　 .
 <!--
 **IbaiS94/IbaiS94** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
